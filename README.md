@@ -29,7 +29,7 @@ And of course! You can give me nicknames, as long it's not anything *inappropria
 
 <div style="font-size: 40px; text-align: center; line-height: 1.1;">
 
-I live in the Philippines! (Luzon.) And i am a minor. Don't be weird. 
+i am a minor. Don't be weird. 
 
 FYI i do not like saying my age (only trusted ones) 
 
@@ -41,7 +41,7 @@ Extra (s)  :
 
 <div style="font-size: 40px; text-align: center; line-height: 1.1;">
       
-   You might also find me in the mountains, near bakery, or to the caves! (both serv 1 and 2)
+   You might also find me in the mountains, near and inside the bakery, or to the caves! (both serv 1 and 2. But i usually play in serv 2 for a reason.)
  
  
    I uhh love cats 
