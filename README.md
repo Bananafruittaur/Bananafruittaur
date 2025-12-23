@@ -7,14 +7,14 @@
 *Heya! This acc is for ponytown, My bad.* 
 
 *Anyways, you can find me near the docks (AKA alan becker spot), Mountains,
-and such.* 
+and such (In safe serv 1 and maybe 2.)*
 
 *Yes feel free to interact with me! And yes you can w2i also!* 
 
 *Note that i may whisper to you if i find you interesting / cool, as if I'm vaguely
 Saying i want to be your friend lmfao*
 
-*Anyways, That's all i guess. Goodbye!!  
+*Anyways, That's all i guess. Goodbye!!*  
 
 
 <img src="Untitled112_20251130145606.png" width="1000">
