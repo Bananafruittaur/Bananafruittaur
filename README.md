@@ -6,7 +6,7 @@
 
 *Heya! This acc is for ponytown, My bad.* 
 
-*Anyways, you can find me near the docks (AKA alan becker spot), Mountains,
+*Anyways, you can find me near the docks (AKA alan becker spot), Mountains, Outside/inside of the library 
 and such (In safe serv 1 and maybe 2.)*
 
 *Yes feel free to interact with me! And yes you can w2i also!* 
