@@ -1,58 +1,21 @@
 <img src="Untitled112_20251130145606.png" width="1000">
 
-<img src="Untitled106_20251130112908.png" width="330" align="right" style="margin-left: 6px;">
+<img src="Untitled106_20251130112908.png" width="370" align="left" style="margin-left: 6px;">
 
 <div style="font-size: 40px; text-align: center; line-height: 1.0;">
 
-*Hello! Yes i adjusted my readme, hopefully it looks cool heh..*
+*Heya! This acc is for ponytown, My bad.* 
 
-Anyway! Hi again! I am AJ, you can either call me.. 
-Aen, 
-Sion, 
-Sei, 
-*JJ,*
-Or
-Maxine! (i rarely get called by this lmfao) 
+*Anyways, you can find me near the docks (AKA alan becker spot), Mountains,
+and such.* 
 
-I'm.. 
+*Yes feel free to interact with me! And yes you can w2i also!* 
 
-<img src="8281634890baf22a4864700494b1e6be.jpg" width="40">   and   <img src="1cfe28baa57c2a68ada3e2f244d0f75b.jpg" width="50">
+*Note that i may whisper to you if i find you interesting / cool, as if I'm vaguely
+Saying i want to be your friend lmfao*
 
-And of course! You can give me nicknames, as long it's not anything *inappropriate.*
+*Anyways, That's all i guess. Goodbye!!  
 
-
-
-
-
-
-<img src="Untitled109_20251130141917.png" width="270" align="left" style="margin-right: 6px;">
-
-<div style="font-size: 40px; text-align: center; line-height: 1.1;">
-
-i am a minor. Don't be weird. 
-
-FYI i do not like saying my age (only trusted ones) 
-
-DNI :  Proshippers, NSFW supporters or anything like that. 
-
-Extra (s)  :
-     
-<img src="Untitled108_20251130142420.png" width="250" align="right" style="margin-left: 6px;">
-
-<div style="font-size: 40px; text-align: center; line-height: 1.1;">
-      
-   You might also find me in the mountains, near and inside the bakery, or to the caves! (both serv 1 and 2. But i usually play in serv 2 for a reason.)
- 
- 
-   I uhh love cats 
-
-  I speak Ilocano hheh  and of course English duhh
-
-  Feel free to sit, int or match with me in Ponytown! 
-
-  This is only for Ponytown, My apologies.
-
-  <img src="Untitled112_20251130145606.png" width="1000">
 
 
   
