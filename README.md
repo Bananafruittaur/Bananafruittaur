@@ -17,6 +17,9 @@ Saying i want to be your friend lmfao*
 *Anyways, That's all i guess. Goodbye!!  
 
 
+<img src="Untitled112_20251130145606.png" width="1000">
+
+
 
   
 
